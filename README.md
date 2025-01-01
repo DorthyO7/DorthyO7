@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Crypto projects
 - 📫 How to reach me flemingdorthy807ATGMAIL
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I'm real
+- ⚡ Fun fact: I'm real, not an AI Agent
 
 <!---
 DorthyO7/DorthyO7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
