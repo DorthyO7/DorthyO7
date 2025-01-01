@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DorthyO7
-- 👀 I’m interested in Crypto
+- 👀 I’m interested in Cryptocurrency
 - 🌱 I’m currently learning about Bitcoin
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Crypto projects
 - 📫 How to reach me flemingdorthy807ATGMAIL
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm real
